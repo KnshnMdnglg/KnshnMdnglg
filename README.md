@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KnshnMdnglg
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning Java/Html
+- 🌱 I’m currently a college student
